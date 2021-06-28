@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @scott-rothman
+- 👀 I’m interested in things
